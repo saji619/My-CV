@@ -1,4 +1,4 @@
-# 🌟 Sajith Prashan Appuhamy - Portfolio
+# 🌟 Sajith Prashan Appuhamy
 
 ### 👤 Personal Data
 - **Name**: Sajith Prashan Appuhamy
